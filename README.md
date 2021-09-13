@@ -1,0 +1,1 @@
+# 7-sinif-matematik-spoiler-soru-bankasi-32
